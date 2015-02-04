@@ -35,7 +35,7 @@
           }).sort(function(a, b) { return b.size - a.size; });
 
       if (timer) clearInterval(timer);
-      timer = setInterval(step, 0);
+      timer = setInterval(step, 10);
       step();
 
       return cloud;

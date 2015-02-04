@@ -3,7 +3,8 @@ var selector = '#svg',
     h = 400,
     cloudText = "#growthhacking videomarketing inbound mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing  #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing  #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing  #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing  #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing  #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing  #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking slacktivism mktng2015 #growthhacking videomarketing #growthhacking mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing #growthhacking videomarketing inbound mobile interactivecontent inbound conversionmarketing slacktivism mktng2015 CRO AllAboutThatSalesNoMarketing marketing doge conversionmarketing slacktivism mktng2015 CRO AllAboutThatSalesNoMarketing marketing doge chihuahua ohpleasegodnomore!     nurture userexperience Blunt contentdistribution giftgiving yourmom momtexts 6D 8xHD TV vacation cutthecord fart-a-licious jakedrew conversionoptimization TheHashMarkistheShiftKeyAbovetheNumber3 personalization videomarketing yourmom momtexts 6D 8xHD TV giftgiving yourmom momtexts 6D 8xHD TV vacation cutthecord fart-a-licious jakedrew conversionoptimization TheHashMarkistheShiftKeyAbovetheNumber3 personalization videomarketing yourmom momtexts 6D 8xHD TV giftgiving yourmom momtexts 6D 8xHD TV vacation cutthecord fart-a-licious jakedrew conversionoptimization TheHashMarkistheShiftKeyAbovetheNumber3 personalization videomarketing yourmom momtexts 6D 8xHD TV giftgiving yourmom momtexts 6D 8xHD TV vacation cutthecord fart-a-licious jakedrew conversionoptimization TheHashMarkistheShiftKeyAbovetheNumber3 personalization videomarketing yourmom momtexts 6D 8xHD TV giftgiving yourmom momtexts 6D 8xHD TV vacation cutthecord fart-a-licious jakedrew conversionoptimization TheHashMarkistheShiftKeyAbovetheNumber3 personalization videomarketing yourmom momtexts 6D 8xHD TV vacation cutthecord fart-a-licious jakedrew conversionoptimization TheHashMarkistheShiftKeyAbovetheNumber3 personalization videomarketing IoT emotional landingpages ab testing mobile-connected devices dogue #growthhacking advocatemktg content Managesocialmediamarketing meow datamining 0 inboundmarketing distribution growhacking MoreCowbell gamechanger videoinfographics killer IamGroot ux User experience mobile blah startup LeadGeneration virtualcontent Halo 5 gamechanger videoinfographics killer IamGroot ux User experience mobile blah startup LeadGeneration virtualcontent Halo 5 conversion bigLocal hobbit GooglePlusDies agilemarketing witchmktpredictions2015";
     wordCount= 20
-    fill = d3.scale.category20c();
+    fill = d3.scale.category20c(),
+    colorScale = d3.scale.ordinal();
 
 var layout = d3.layout.cloud()
     .timeInterval(10)
@@ -19,7 +20,7 @@ var layout = d3.layout.cloud()
 
 var svg = d3.select(selector)
     .append("svg")
-    .classed("Blues")
+    .attr("class", "Blues")
     .attr("width", w)
     .attr("height", h);
 
@@ -43,6 +44,7 @@ function parseText(text) {
     tags.forEach(function(d) { 
         return d.key = cases[d.key]; 
     });
+    colorScale.domain(tags).range([0,1,2,3,4,5,6,7,8]);
     generate();
 }
 
@@ -50,7 +52,7 @@ function generate() {
     layout
         .font("Impact")
         .spiral("archimedean");
-    fontSize = d3.scale['log']().range([10, 100]);
+    fontSize = d3.scale['log']().range([30, 60]);
     if (tags.length) {
         fontSize.domain([+tags[tags.length - 1].value || 1, +tags[0].value]);
     }
@@ -60,7 +62,7 @@ function generate() {
 }
 
 function progress(d) {
-    //statusText.text(++complete + "/" + max);
+    console.log(d)
 }
 
 function draw(data, bounds) {
@@ -102,8 +104,12 @@ function draw(data, bounds) {
     text.style("font-family", function(d) { 
                 return d.font; 
             })
-        .style("fill", function(d) { 
-            return fill(d.text.toLowerCase()); 
+//        .style("fill", function(d) { 
+//            return fill(d.text.toLowerCase()); 
+//        })
+        .attr("class", function(d){
+            colorScale(d.text)
+            return "q" + colorScale(d.text) + "-9"
         })
         .text(function(d) { 
             return d.text; 
